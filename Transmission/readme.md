@@ -1,0 +1,1 @@
+- [Koenigsegg Reinvents The Manual! How The CC850 Transmission Works](https://youtu.be/Hvb6J96KiSM)
