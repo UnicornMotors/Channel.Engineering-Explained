@@ -1,0 +1,1 @@
+- [Does The Tesla Semi Make Any Sense? Part 2!](https://youtu.be/hvg_i0GE0Vo)
